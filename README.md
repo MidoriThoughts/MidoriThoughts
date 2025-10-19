@@ -14,8 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: they/she
 - ⚡ Fun fact: i love to ensemble stars. My name is da Nat Hem
 -->
-They/she
+Nat Hem  
 
 Chelsea High (MA) grad CO2025  
-
-Northeastern University Computer Science + Design CO2029
+Northeastern University Computer Science + Design  
+2029 exepcted graduation
