@@ -14,5 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: they/she
 - ⚡ Fun fact: i love to ensemble stars. My name is da Nat Hem
 -->
-Chelsea High (MA) grad CO2025
+Chelsea High (MA) grad CO2025  
+
 Northeastern University CO2029
