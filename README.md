@@ -18,4 +18,4 @@ They/she
 
 Chelsea High (MA) grad CO2025  
 
-Northeastern University CO2029
+Northeastern University Computer Science + Design CO2029
